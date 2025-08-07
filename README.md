@@ -1,1 +1,2 @@
-https://sites.google.com/view/arecuis-r/arecuis-r-loader
+"Этот проект предназначен для образовательных целей. 
+Не нарушайте TOS Roblox!" вы хотите разыграть друга если он любит читерить отправьте ему это можно скачать в релизах или здесь https://sites.google.com/view/arecuis-r/arecuis-r-loader файл без вредоносного ПО проверяйте где хотите
